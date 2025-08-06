@@ -2,6 +2,6 @@
 a horror modpack
 
 
-website ONLY
+
 
 
